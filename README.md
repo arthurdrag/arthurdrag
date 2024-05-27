@@ -9,3 +9,5 @@ Meu nome é Arthur Cesila Teixeira
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo : 00001110750481sp@al.educacao.sp.gov.br  email
+
+![](https://media1.tenor.com/m/C8ATAFnxES4AAAAd/rengoku-cooking.gif)
